@@ -1,1 +1,1 @@
-# Ki-iselle-tirilmi-Servis-Kampanyas-
+# Kisisellestirilmis-Servis-Kampanyasi
